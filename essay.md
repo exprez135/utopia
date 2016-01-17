@@ -1,0 +1,1 @@
+Second advantage of creating a human-less utopia is the survival of Earth's precious ecosystems. In today's world, humans are destroying forests, marine reefs, swamps, rivers, entire oceans, and all sorts of 
