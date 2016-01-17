@@ -1,1 +1,1 @@
-The third advantage
+The third reason for a human-less world-wide utopia is that it would allow for the rise of the Utopian Animal Empire. Without human interaction, many animals are able to thrive and live in utopia-like conditions. The Empire would be run by a council of five animals, each one the Monarch of their respective Kingdoms. The Empire would consist of the Five Animal Kingdoms, the Kingdom of Earth, the Kingdom of the Atmosphere, the Marine Kingdom, the Kingdom of the 
