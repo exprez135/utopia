@@ -4,4 +4,4 @@ this is an essay for Mr. Bishop's Pre-AP Language Arts Block Four Class of 2015-
 
 ---
 
-Copyright © exprez135
+Copyright 2015-2019 © exprez135
